@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with Cybersecurity
 - 💬 Ask me about AI & ML
-- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/rishi-kanthan/)  [Twitter](https://twitter.com/rishigss)
+- 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/rishi-kanthan/)  
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
